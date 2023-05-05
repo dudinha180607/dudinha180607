@@ -15,6 +15,5 @@ dduda9712@gmail.com
 
 @duda_tavares_18
 
-
--->![8dec648431dee9a323679661ff435bf3](https://user-images.githubusercontent.com/132673506/236462256-10451e70-5742-40f0-98e4-a29ecd942ceb.gif)
+![imagem](https://user-images.githubusercontent.com/132673506/236462256-10451e70-5742-40f0-98e4-a29ecd942ceb.gif)
 
